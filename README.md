@@ -1,4 +1,4 @@
 # OpenComputers-Orders
 
-:) POVERED BY BRATSTVO YES
+:) POVERED BY YES
         again
